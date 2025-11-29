@@ -1,1 +1,1 @@
-# 4-amaliy-ish
+# 4-amaliy-ish muvaffaqiyatli bajarildi.
